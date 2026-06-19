@@ -3,10 +3,6 @@
 
 👋 Hi, I’m @PieOnRS
 
-👀 I’m interested in happiness
-
-🌱 I’m currently learning to create happiness
-
-💞️ I’m looking to collaborate on happiness
+🌱 Runescape
 
 📫 How to reach me - j0ey [discord]
